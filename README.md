@@ -1,6 +1,6 @@
 # ForgeHub
 
-Neon-green, Hugging Face–inspired model discovery dashboard.
+top shelf uncensored distilled and obliterated AI models 
 
 ## Run locally
 
